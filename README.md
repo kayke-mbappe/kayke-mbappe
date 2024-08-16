@@ -12,5 +12,5 @@ meu nome é kayke prudencio
 
 
 
-![](https://tenor.com/pt-BR/view/messi-vs-ronaldo-messi-kiss-gif-12863539902500813387)
+![](https://media1.tenor.com/m/soR5YyqfuksAAAAC/messi-vs-ronaldo-messi-kiss.gif)
 https://tenor.com/pt-BR/view/messi-vs-ronaldo-messi-kiss-gif-12863539902500813387
